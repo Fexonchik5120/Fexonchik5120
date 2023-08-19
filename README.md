@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-### IDK why profiles with 30k followers following me
+### IDK why profiles with 100k followers following me
